@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **tarangini.dwivedi020@gmail.com**
 
-- ⚡ Fun fact **Facts are not fun**
+- ⚡ Fun fact **When I'm not coding, I enjoy creating art**
 
 
 <p align="left">
